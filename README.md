@@ -1,0 +1,1 @@
+# kd-gaile-supermarket-site
